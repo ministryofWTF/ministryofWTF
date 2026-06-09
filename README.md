@@ -1,5 +1,5 @@
---------------------------------------------------------------------------------
-🏛️ Ministry of WTF (The Global Authority of Post-Reality Assets)
+
+#🏛️ Ministry of WTF (The Global Authority of Post-Reality Assets)
 "Officializing the Void. Standardizing the Impossible."
 Welcome to the digital headquarters of the Ministry of WTF. We serve as the sole sovereign administrative body authorized to license, distribute, and officialize assets that technically, physically, and logically do not exist.
 While the common crowd squabbles over "tangible" commodities and depreciating utilities, we architect the infrastructure of the Post-Reality Economy.
